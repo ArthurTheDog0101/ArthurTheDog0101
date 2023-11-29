@@ -12,7 +12,7 @@
 
  **Shrek sola... só uma curiosidade largada.**
 
- ![image](https://github.com/ArthurTheDog0101/ArthurTheDog0101/assets/129325489/bddd318f-d4b1-458b-b997-c4ecdc2c6082)
+ ![image](https://cms-assets.tutsplus.com/cdn-cgi/image/width=850/uploads/users/403/posts/41848/image-upload/car.gif)
 
 
  
