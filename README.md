@@ -10,7 +10,7 @@
 
  **Pronomes: homem másculo/solador de ficção.**
 
- **Shrek sola... só uma curiosidae largada.**
+ **Shrek sola... só uma curiosidade largada.**
 
  ![image](https://github.com/ArthurTheDog0101/ArthurTheDog0101/assets/129325489/bddd318f-d4b1-458b-b997-c4ecdc2c6082)
 
