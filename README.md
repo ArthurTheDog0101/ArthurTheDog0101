@@ -3,7 +3,7 @@
 🔥 Fala baixo. 🔥
 
 
-**ArthurTheDog0101/ArthurTheDog0101** <- Nick brabo...
+**ArthurTheDog0101** <- Nick brabo...
 
  _**Meu nome é Arthur, também conhecido por Baba Boe. Tenho a fama de comer grafite com queijo, mas isso não 
  é nada demais. Legal mesmo foi quando eu surfei nas ondas do esgoto enquanto invadia a Rússia com um picolé.**_
